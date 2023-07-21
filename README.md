@@ -23,5 +23,8 @@
 
   [https://www.cnblogs.com/funnyzpc/p/17572397.html](https://www.cnblogs.com/funnyzpc/p/17572397.html)
 
->>>***Auther by funnyzpc,if you want watch more,
-please see me by [cnblogs](http://www.cnblogs.com/funnyzpc)***
+*******************************************************************
+**Auther by funnyzpc,if you want watch more~**
+
+You can see me by [**cnblogs**](http://www.cnblogs.com/funnyzpc).
+*******************************************************************
